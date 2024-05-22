@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **rajputritika2706@gmail.com**
 
-- ⚡ Fun fact **I**
+- ⚡ Fun fact **Just a normal engineer with unique interest**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
